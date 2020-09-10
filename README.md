@@ -7,6 +7,6 @@ projects on [@ranahamzaintisar](https://ranahamzaintisar1995.github.io)'s GitHub
 
 ## Author
 
-Developed by [Rana Hamza Intisar](https://github.com/ralflorent).
+Developed by [Rana Hamza Intisar](https://github.com/ranahamzaintisar1995).
 
 
